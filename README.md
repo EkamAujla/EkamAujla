@@ -4,4 +4,4 @@
  - [MY DISCORD SERVER](https://discord.gg/GFsra3Q)
  - [MY DISCORD BOT](https://top.gg/bot/724143399573127178)
  ---
- ![challenge_yes](https://i.alexflipnote.dev/4h93guy.png)
+ 
